@@ -1,1 +1,1 @@
-# -Agentic-AI-course-in-Pune-SevenMentor
+# Agentic-AI-course-in-Pune-SevenMentor
